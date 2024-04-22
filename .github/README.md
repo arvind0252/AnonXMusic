@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 ᴀɴᴏɴ ダ ᴍᴜsɪᴄ 」──
+    ──「 𝚁𝙾𝙲𝙺𝚈 ➳♥ ᴍᴜsɪᴄ 」──
 </h2>
 
 <p align="center">
